@@ -1,1 +1,1 @@
-# sneakers_and_dot
+# Кроссы — и точка
